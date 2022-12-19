@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 -   I like reading and cooking.
 
 - 📫 you to reach me: Contact: +233 0553100505
-                      Email: fadilahamid@gmail.com
+                      Email: fhamid@aimsammi.org
 
 
 
